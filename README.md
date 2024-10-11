@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sibinsibin
+- 👋 Hi, I’m SIBIN RAJ.S
 - 👀 I’m interested in Learning and Leading
 - 🌱 I’m currently learning some computer coding courses
 - 💞️ I’m looking to collaborate on ...
